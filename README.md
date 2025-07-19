@@ -1,11 +1,13 @@
 <p align="center">
-<img src="https://i.imgur.com/22zdHY2.gif">
+<img src="https://i.imgur.com/xDcV1Ct.jpeg">
 </p>
 ㅤ  ㅤ ㅤ ㅤ 
 <p align="center">
 ੈ✩‧₊˚
 </p>
-
+<p align="center">
+ㅤ  ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ 
+</p>
 <p align="center">
 <i>Discord: k1ritssu</i>
 </p>
@@ -14,8 +16,12 @@
 ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ 
 </p>
 <p align="center">
-<img src="https://i.imgur.com/xDcV1Ct.jpeg">
+  ⋆꙳•❅*°⋆❆.ೃ࿔*:･*❆ ₊⋆
 </p>
+<p align="center">
+<img src="https://i.imgur.com/22zdHY2.gif">
+</p>
+
 <p align]"center">
 ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ 
 </p>
