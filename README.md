@@ -5,21 +5,16 @@
 <p align="center">
 ੈ✩‧₊˚
 </p>
-<p align="center">
-ㅤ  ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ 
-</p>
+
 <p align="center">
 <i>Discord: k1ritssu</i>
 </p>
 
 <p align="center">
-ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ 
-</p>
-<p align="center">
   ⋆꙳•❅*°⋆❆.ೃ࿔*:･*❆ ₊⋆
 </p>
 <p align="center">
-<img src="https://i.imgur.com/22zdHY2.gif">
+<img src="https://i.imgur.com/CdaQNyj.gif">
 </p>
 
 <p align]"center">
@@ -39,5 +34,5 @@
 </p>
 
 <p align="center">
-<img src="https://i.imgur.com/CdaQNyj.gif">
+<img src="https://i.imgur.com/22zdHY2.gif">
 </p>
